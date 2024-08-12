@@ -4,3 +4,6 @@
 Estou estudando na escola domingos quirino.
 Tambem faço curso de inglês na wizard.
 Sou muito boa em desenvolver videos, e sempre tenho ideias criativas!
+
+meu g-mail é:
+00001108002778sp@al.educacao.sp.gov.br
